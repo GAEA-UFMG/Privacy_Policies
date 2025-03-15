@@ -1,6 +1,6 @@
 ## Política de Privacidade do Software The Flush!
 
-# Última atualização: 24 de agosto de 2024.
+### Última atualização: 24 de agosto de 2024.
 
 Bem-vindo ao The Flush!
 
